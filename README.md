@@ -61,6 +61,6 @@ Special thanks to the developers, researchers, and organizations whose work cont
 
 ## Feedback and Support
 
-For feedback, suggestions, or support inquiries, please contact [subhangi.sati270@gmail.com](mailto:subhangi.sati270@gmail.com).
+For feedback, suggestions, or support inquiries, please contact [subhangi.sati270@gmail.com](mailto:purvikajoshi2002@gmail.com).
 
 
